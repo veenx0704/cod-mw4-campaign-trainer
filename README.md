@@ -29,7 +29,9 @@ No `.exe` in this GitHub tree. The **Call of Duty Modern Warfare 4 trainer free 
 ## Keywords
 
 `Call of Duty Modern Warfare 4 trainer` · `Call of Duty Modern Warfare 4 trainer free` · `Call of Duty Modern Warfare 4 trainer 2026` · `Call of Duty Modern Warfare 4 cheat` · `Call of Duty Modern Warfare 4 hack` ·
-`скачать трейнер Call of Duty Modern Warfare 4` · `трейнер Call of Duty Modern Warfare 4 бесплатно` · MoggyDay TrainerHub
+`скачать трейнер Call of Duty Modern Warfare 4` · `трейнер Call of Duty Modern Warfare 4 бесплатно` · `Call of Duty Modern Warfare 4 修改器` · `Call of Duty Modern Warfare 4 entrenador` ·
+`Call of Duty Modern Warfare 4 trainer baixar` · `Call of Duty Modern Warfare 4 Trainer kostenlos` · `Call of Duty Modern Warfare 4 trainer gratuit` · `Call of Duty Modern Warfare 4 hile` ·
+`Call of Duty Modern Warfare 4 トレーナー` · `Call of Duty Modern Warfare 4 트레이너` · MoggyDay TrainerHub
 
 
 ## Screenshots (this game)
@@ -59,7 +61,13 @@ RU: бессмертие, бесконечные патроны, без отда
 
 - EN: https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer
 - RU: https://moggydaytrainer.com/f/call-of-duty-modern-warfare-4-trainer
-- ZH: https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer
+- ZH 修改器: https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer
 - Pages: https://veenx0704.github.io/cod-mw4-campaign-trainer/
+
+## Languages / поиск
+
+EN trainer · RU трейнер · ZH 修改器 · ES entrenador · PT-BR baixar · DE Trainer ·
+FR trainer · TR hile · PL trainer · IT trainer · KO 트레이너 · JA トレーナー ·
+VI tải miễn phí · ID unduh gratis · AR تحميل · UK трейнер.
 
 Campaign / offline only. No `.exe` in this tree. Current Steam patch.
