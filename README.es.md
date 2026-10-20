@@ -10,7 +10,7 @@
 ![card](media/card.png)
 ![cover](media/cover.jpg)
 
-**EN:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer> · **RU:** <https://moggydaytrainer.com/f/call-of-duty-modern-warfare-4-trainer> · **ZH:** <https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer>
+**EN:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer> · **RU:** <https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer> · **ZH:** <https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer>
 
 # Trainer Call of Duty Modern Warfare 4 +64 descarga gratis 2026 — dios, munición infinita, sin retroceso
 
