@@ -1,825 +1,248 @@
-# Call of Duty Modern Warfare 4 Trainer +64 Free Download 2026
+# Call of Duty Modern Warfare 4 Trainer (+64) — Free Download 2026
 
-**EN** · **RU трейнер** · **ZH 修改器** · **ES entrenador** · **PT-BR** · **DE Trainer** · **FR** · **TR hile** · **KO 트레이너** · **JA トレーナー**
+<p align="center">
+  <a href="https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer"><img alt="Canonical download — English trainer" src="https://img.shields.io/badge/⬇%20Canonical%20download%20(EN)-2563eb?style=for-the-badge&logo=microsoftedge&logoColor=white"></a>
+</p>
+<p align="left">
+  <strong>Languages:</strong>
+  <a href="https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer">English</a> ·
+  <a href="https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer">Русский (<code>/ru/f/</code>)</a> ·
+  <a href="https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer">中文 (<code>/zh/f/</code>)</a>
+</p>
 
-**Call of Duty Modern Warfare 4 trainer**, **Call of Duty Modern Warfare 4 trainer download**, **Call of Duty Modern Warfare 4 cheat**, **Call of Duty Modern Warfare 4 hack**, **Call of Duty Modern Warfare 4 cheats**,
-**скачать трейнер Call of Duty Modern Warfare 4**, **трейнер Call of Duty Modern Warfare 4 2026**, **Call of Duty Modern Warfare 4 修改器** — MoggyDay.
+**Canonical download (English):** [https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer)
 
-**Call of Duty Modern Warfare 4 trainer** free download 2026. Documented for campaign / custom / offline — not ranked. Live file: current Steam patch. Not for multiplayer or RICOCHET.
-
-Campaign / Stranded / offline only. Not multiplayer, not RICOCHET.
-
-**Download (current patch):** [https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer)  
-**RU:** [https://moggydaytrainer.com/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/f/call-of-duty-modern-warfare-4-trainer)  
-**CN 修改器:** [https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer)
-
-## Call of Duty Modern Warfare 4 trainer — current Steam patch
-
-Works on the **latest PC / Steam patch** (current). After a game update, reload the same URL.
-
-| # | Option |
+| Language | Official trainer page |
 |---|---|
-| 1 | infinite ammo |
-| 2 | no recoil |
-| 3 | no reload |
-| 4 | one hit kill |
-| 5 | infinite grenades. Campaign / offline |
-| 6 | current patch. |
-
-No `.exe` in this GitHub tree. The **Call of Duty Modern Warfare 4 trainer free download** button is on moggydaytrainer.com.
-
-## Keywords
-
-`Call of Duty Modern Warfare 4 trainer` · `Call of Duty Modern Warfare 4 trainer free` · `Call of Duty Modern Warfare 4 trainer 2026` · `Call of Duty Modern Warfare 4 cheat` · `Call of Duty Modern Warfare 4 hack` ·
-`скачать трейнер Call of Duty Modern Warfare 4` · `трейнер Call of Duty Modern Warfare 4 бесплатно` · `Call of Duty Modern Warfare 4 修改器` · `Call of Duty Modern Warfare 4 entrenador` ·
-`Call of Duty Modern Warfare 4 trainer baixar` · `Call of Duty Modern Warfare 4 Trainer kostenlos` · `Call of Duty Modern Warfare 4 trainer gratuit` · `Call of Duty Modern Warfare 4 hile` ·
-`Call of Duty Modern Warfare 4 トレーナー` · `Call of Duty Modern Warfare 4 트레이너` · MoggyDay TrainerHub
-
-## Languages
-**ZH 中文** · **ES Español** · **PT-BR Português** · **DE Deutsch** · **FR Français** · **TR Türkçe** · **PL Polski** · **IT Italiano** · **KO 한국어** · **JA 日本語** · **VI Tiếng Việt** · **ID Indonesia** · **AR العربية** · **UK Українська** · **RU Русский** · **EN English**
-
-## Call of Duty Modern Warfare 4 修改器 +64 免费下载 2026 — 无限生命、无限弹药、无后坐力
-
-这是 **Call of Duty Modern Warfare 4 修改器**（trainer / 作弊器）的 MoggyDay 镜像说明。+64 项功能，适配 **当前 Steam 补丁**。仓库里没有 .exe，请到官网按钮下载。
-
-Steam AppID **4435490**。16 个战役任务（韩国、纽约、巴黎、孟买、Stranded）。非多人、非 RICOCHET。
-
-### 热门功能
-
-- 无限生命 / 无敌（God Mode）
-- 无限弹药
-- 无后坐力
-- 无需换弹
-- 一击必杀
-- 无限冲刺
-- 解锁全部战役任务
-- 当前补丁可用
-
-### 如何免费下载
-
-1. 打开下方官网链接
-2. 确认域名是 moggydaytrainer.com
-3. 点击主按钮「免费下载 / 下载」
-4. 游戏更新后刷新同一网址，不要在 GitHub 找 zip
-
-### 当前补丁
-
-**Call of Duty Modern Warfare 4 修改器**跟随最新 PC / Steam 版本。补丁后回到同一页面即可。
-
-仅战役 / 离线 / 自定义，不要用于排位或反作弊服务器。
-
-**官方下载:** <https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer>
-
-### 常见问题
-
-**修改器免费吗？**  
-是。只从 MoggyDay 官方页下载。
-
-**支持当前版本吗？**  
-是，页面始终对准最新 Steam 补丁。
-
-**GitHub 有安装包吗？**  
-没有。这里只有说明和截图。
-
-
-`Call of Duty Modern Warfare 4 修改器, Call of Duty Modern Warfare 4 作弊器, Call of Duty Modern Warfare 4 trainer 下载, 无限生命, 无限弹药, 无后坐力, 一击必杀, 免费下载 2026`
-
-
-## Trainer Call of Duty Modern Warfare 4 +64 descarga gratis 2026 — dios, munición infinita, sin retroceso
-
-Espejo SEO de MoggyDay para el **trainer Call of Duty Modern Warfare 4**. Pack +64, **parche actual de Steam**. No hay .exe en este repo: descarga en la web oficial.
-
-Steam AppID **4435490**. 16 misiones de campaña (Corea, Nueva York, París, Mumbai, Stranded). No multijugador, no RICOCHET.
-
-### Funciones populares
-
-- Modo dios / salud infinita
-- Munición infinita
-- Sin retroceso
-- Sin recarga
-- One hit kill
-- Sprint infinito
-- Desbloquear campaña
-- Parche actual
-
-### Cómo descargar gratis
-
-1. Abre el enlace oficial
-2. Comprueba moggydaytrainer.com
-3. Pulsa Free download
-4. Tras un parche, recarga la misma URL
-
-### Parche actual
-
-El **trainer Call of Duty Modern Warfare 4** sigue el build vivo de Steam. No busques un zip nuevo en GitHub.
-
-Solo campaña / offline / custom. No ranked.
-
-**Descarga oficial:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**¿Es gratis?**  
-Sí. Solo en MoggyDay.
-
-**¿Va en el parche de ahora?**  
-Sí, el listing se actualiza con Steam.
-
-**¿Hay .exe aquí?**  
-No.
-
-
-`Call of Duty Modern Warfare 4 trainer, Call of Duty Modern Warfare 4 entrenador, Call of Duty Modern Warfare 4 trucos, munición infinita, sin retroceso, descarga gratis 2026`
-
-
-## Trainer Call of Duty Modern Warfare 4 +64 baixar grátis 2026 — modo deus, munição infinita, sem recuo
-
-Espelho MoggyDay do **trainer Call of Duty Modern Warfare 4**. +64 opções no **patch atual da Steam**. Sem .exe neste repositório.
-
-Steam AppID **4435490**. 16 missões de campanha (Coreia, Nova York, Paris, Mumbai, Stranded). Não multiplayer, não RICOCHET.
-
-### Funções populares
-
-- Modo deus / vida infinita
-- Munição infinita
-- Sem recuo
-- Sem reload
-- One hit kill
-- Sprint infinito
-- Liberar campanha
-- Patch atual
-
-### Como baixar grátis
-
-1. Abra o link oficial
-2. Confira moggydaytrainer.com
-3. Clique em Free download
-4. Depois do patch, recarregue a mesma URL
-
-### Patch atual
-
-O **trainer Call of Duty Modern Warfare 4** acompanha o build vivo da Steam.
-
-Só campanha / offline / custom. Não ranked.
-
-**Download oficial:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**É grátis?**  
-Sim. Só no MoggyDay.
-
-**Funciona no patch de agora?**  
-Sim.
-
-**Tem .exe no GitHub?**  
-Não.
-
-
-`Call of Duty Modern Warfare 4 trainer, Call of Duty Modern Warfare 4 cheat, baixar grátis, munição infinita, sem recuo, one hit kill 2026`
-
-
-## Call of Duty Modern Warfare 4 Trainer +64 kostenlos download 2026 — Gottmodus, unendlich Munition, kein Rückstoß
-
-MoggyDay-Spiegel für den **Call of Duty Modern Warfare 4 Trainer**. +64 Optionen, **aktueller Steam-Patch**. Keine .exe in diesem Repo.
-
-Steam AppID **4435490**. 16 Kampagnen-Missionen (Korea, New York, Paris, Mumbai, Stranded). Kein Multiplayer, kein RICOCHET.
-
-### Beliebte Funktionen
-
-- Gottmodus / unendlich Leben
-- Unendlich Munition
-- Kein Rückstoß
-- Kein Nachladen
-- One-Hit-Kill
-- Unendlich Sprint
-- Kampagne freischalten
-- Aktueller Patch
-
-### Kostenlos downloaden
-
-1. Offizielle URL öffnen
-2. Domain moggydaytrainer.com prüfen
-3. Free download klicken
-4. Nach einem Patch dieselbe URL neu laden
-
-### Aktueller Patch
-
-Der **Call of Duty Modern Warfare 4 Trainer** bleibt auf dem live Steam-Build.
-
-Nur Kampagne / offline / custom. Nicht Ranked.
-
-**Offizieller Download:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**Kostenlos?**  
-Ja, nur bei MoggyDay.
-
-**Aktueller Patch?**  
-Ja.
-
-**.exe hier?**  
-Nein.
-
-
-`Call of Duty Modern Warfare 4 Trainer, Call of Duty Modern Warfare 4 Cheats, kostenlos download, Gottmodus, kein Rückstoß, 2026`
-
-
-## Trainer Call of Duty Modern Warfare 4 +64 télécharger gratuit 2026 — mode dieu, munitions infinies, sans recul
-
-Miroir MoggyDay du **trainer Call of Duty Modern Warfare 4**. +64 options, **patch Steam actuel**. Pas de .exe dans ce dépôt.
-
-Steam AppID **4435490**. 16 missions campagne (Corée, New York, Paris, Mumbai, Stranded). Pas de multijoueur, pas RICOCHET.
-
-### Fonctions populaires
-
-- Mode dieu / vie infinie
-- Munitions infinies
-- Sans recul
-- Sans rechargement
-- One hit kill
-- Sprint infini
-- Débloquer la campagne
-- Patch actuel
-
-### Télécharger gratuitement
-
-1. Ouvrir le lien officiel
-2. Vérifier moggydaytrainer.com
-3. Cliquer sur Free download
-4. Après un patch, recharger la même URL
-
-### Patch actuel
-
-Le **trainer Call of Duty Modern Warfare 4** suit le build Steam en ligne.
-
-Campagne / hors ligne / custom uniquement. Pas de ranked.
-
-**Téléchargement officiel:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**Gratuit ?**  
-Oui, uniquement MoggyDay.
-
-**Patch actuel ?**  
-Oui.
-
-**.exe ici ?**  
-Non.
-
-
-`Call of Duty Modern Warfare 4 trainer, Call of Duty Modern Warfare 4 triche, télécharger gratuit, mode dieu, sans recul, 2026`
-
-
-## Call of Duty Modern Warfare 4 trainer / hile +64 ücretsiz indir 2026 — ölümsüzlük, sonsuz mermi, no recoil
-
-**Call of Duty Modern Warfare 4 trainer** için MoggyDay SEO aynası. +64 özellik, **güncel Steam yaması**. Bu repoda .exe yok.
-
-Steam AppID **4435490**. 16 kampanya görevi (Kore, New York, Paris, Mumbai, Stranded). Çok oyunculu yok, RICOCHET yok.
-
-### Popüler özellikler
-
-- Ölümsüzlük / God Mode
-- Sonsuz mermi
-- No recoil
-- No reload
-- Tek vuruş
-- Sonsuz sprint
-- Kampanyayı aç
-- Güncel yama
-
-### Ücretsiz nasıl indirilir
-
-1. Resmi linki aç
-2. moggydaytrainer.com olduğunu kontrol et
-3. Free download’a bas
-4. Yama sonrası aynı URL’yi yenile
-
-### Güncel yama
-
-**Call of Duty Modern Warfare 4 trainer** canlı Steam sürümünü takip eder.
-
-Yalnızca kampanya / çevrimdışı / custom. Ranked değil.
-
-**Resmi indirme:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### SSS
-
-**Ücretsiz mi?**  
-Evet. Sadece MoggyDay.
-
-**Güncel yamada çalışır mı?**  
-Evet.
-
-**GitHub’da exe var mı?**  
-Hayır.
-
-
-`Call of Duty Modern Warfare 4 trainer, Call of Duty Modern Warfare 4 hile, ücretsiz indir, sonsuz mermi, no recoil, 2026`
-
-
-## Trainer Call of Duty Modern Warfare 4 +64 pobierz za darmo 2026 — nieśmiertelność, amunicja, brak odrzutu
-
-Lustro MoggyDay dla **trainer Call of Duty Modern Warfare 4**. +64 opcji, **aktualny patch Steam**. Brak .exe w tym repo.
-
-Steam AppID **4435490**. 16 misji kampanii (Korea, Nowy Jork, Paryż, Mumbai, Stranded). Nie multiplayer, nie RICOCHET.
-
-### Popularne funkcje
-
-- Nieśmiertelność / God Mode
-- Nieskończona amunicja
-- Brak odrzutu
-- Bez przeładowania
-- One hit kill
-- Nieskończony sprint
-- Odblokuj kampanię
-- Aktualny patch
-
-### Jak pobrać za darmo
-
-1. Otwórz oficjalny link
-2. Sprawdź moggydaytrainer.com
-3. Kliknij Free download
-4. Po patchu odśwież ten sam URL
-
-### Aktualny patch
-
-**Trainer Call of Duty Modern Warfare 4** trzyma się żywego buildu Steam.
-
-Tylko kampania / offline / custom. Nie ranked.
-
-**Oficjalne pobieranie:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**Za darmo?**  
-Tak. Tylko MoggyDay.
-
-**Na aktualnym patchu?**  
-Tak.
-
-**Jest .exe?**  
-Nie.
-
-
-`Call of Duty Modern Warfare 4 trainer, Call of Duty Modern Warfare 4 kody, pobierz za darmo, nieśmiertelność, brak odrzutu, 2026`
-
-
-## Trainer Call of Duty Modern Warfare 4 +64 scarica gratis 2026 — modalità dio, munizioni infinite, no recoil
-
-Mirror MoggyDay del **trainer Call of Duty Modern Warfare 4**. +64 opzioni, **patch Steam attuale**. Nessun .exe in questo repo.
-
-Steam AppID **4435490**. 16 missioni campagna (Corea, New York, Parigi, Mumbai, Stranded). Non multiplayer, non RICOCHET.
-
-### Funzioni popolari
-
-- Modalità dio / vita infinita
-- Munizioni infinite
-- No recoil
-- No reload
-- One hit kill
-- Sprint infinito
-- Sblocca campagna
-- Patch attuale
-
-### Come scaricare gratis
-
-1. Apri il link ufficiale
-2. Controlla moggydaytrainer.com
-3. Clicca Free download
-4. Dopo la patch ricarica lo stesso URL
-
-### Patch attuale
-
-Il **trainer Call of Duty Modern Warfare 4** segue la build Steam live.
-
-Solo campagna / offline / custom. Non ranked.
-
-**Download ufficiale:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**È gratis?**  
-Sì. Solo MoggyDay.
-
-**Patch attuale?**  
-Sì.
-
-**.exe qui?**  
-No.
-
-
-`Call of Duty Modern Warfare 4 trainer, Call of Duty Modern Warfare 4 trucchi, scarica gratis, munizioni infinite, no recoil, 2026`
-
-
-## Call of Duty Modern Warfare 4 트레이너 +64 무료 다운로드 2026 — 무적, 무한 탄약, 반동 없음
-
-**Call of Duty Modern Warfare 4 트레이너** MoggyDay 미러입니다. +64개 기능, **최신 스팀 패치**. 이 저장소에 .exe 없음.
-
-Steam AppID **4435490**. 캠페인 16개 미션(한국, 뉴욕, 파리, 뭄바이, Stranded). 멀티플레이/RICOCHET 아님.
-
-### 인기 기능
-
-- 무적 / 무한 체력
-- 무한 탄약
-- 반동 없음
-- 재장전 없음
-- 원히트 킬
-- 무한 스프린트
-- 캠페인 해금
-- 최신 패치
-
-### 무료 다운로드 방법
-
-1. 공식 링크 열기
-2. moggydaytrainer.com 확인
-3. Free download 클릭
-4. 패치 후 같은 URL 새로고침
-
-### 최신 패치
-
-**Call of Duty Modern Warfare 4 트레이너**는 라이브 스팀 빌드를 따릅니다.
-
-캠페인/오프라인/커스텀 전용. 랭크 아님.
-
-**공식 다운로드:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**무료인가요?**  
-네. MoggyDay만.
-
-**지금 패치에서 되나요?**  
-네.
-
-**여기에 exe 있나요?**  
-아니요.
-
-
-`Call of Duty Modern Warfare 4 트레이너, Call of Duty Modern Warfare 4 치트, 무료 다운로드, 무한 탄약, 반동 없음, 2026`
-
-
-## Call of Duty Modern Warfare 4 トレーナー +64 無料ダウンロード 2026 — ゴッドモード・無限弾薬・無反動
-
-**Call of Duty Modern Warfare 4 トレーナー**の MoggyDay ミラーです。+64機能、**現行Steamパッチ**。このリポジトリに .exe はありません。
-
-Steam AppID **4435490**。キャンペーン16ミッション（韓国、NY、パリ、ムンバイ、Stranded）。マルチ/RICOCHET不可。
-
-### 人気機能
-
-- ゴッドモード / 無限体力
-- 無限弾薬
-- 無反動
-- リロード不要
-- ワンヒットキル
-- 無限スプリント
-- キャンペーン解除
-- 現行パッチ
-
-### 無料ダウンロード手順
-
-1. 公式URLを開く
-2. moggydaytrainer.com を確認
-3. Free download をクリック
-4. パッチ後は同じURLを再読み込み
-
-### 現行パッチ
-
-**Call of Duty Modern Warfare 4 トレーナー**はライブのSteamビルドに追従します。
-
-キャンペーン／オフライン／カスタムのみ。ランク戦不可。
-
-**公式ダウンロード:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**無料？**  
-はい。MoggyDayのみ。
-
-**今のパッチ対応？**  
-はい。
-
-**exeはある？**  
-いいえ。
-
-
-`Call of Duty Modern Warfare 4 トレーナー, Call of Duty Modern Warfare 4 チート, 無料ダウンロード, 無限弾薬, 無反動, 2026`
-
-
-## Trainer Call of Duty Modern Warfare 4 +64 tải miễn phí 2026 — bất tử, đạn vô hạn, không giật
-
-Bản gương MoggyDay cho **trainer Call of Duty Modern Warfare 4**. +64 chức năng, **patch Steam hiện tại**. Không có .exe trong repo này.
-
-Steam AppID **4435490**. 16 mission chiến dịch (Hàn Quốc, New York, Paris, Mumbai, Stranded). Không multiplayer, không RICOCHET.
-
-### Chức năng phổ biến
-
-- Bất tử / máu vô hạn
-- Đạn vô hạn
-- Không giật
-- Không nạp đạn
-- One hit kill
-- Sprint vô hạn
-- Mở campaign
-- Patch hiện tại
-
-### Cách tải miễn phí
-
-1. Mở link chính thức
-2. Kiểm tra moggydaytrainer.com
-3. Bấm Free download
-4. Sau patch, tải lại cùng URL
-
-### Patch hiện tại
-
-**Trainer Call of Duty Modern Warfare 4** theo build Steam live.
-
-Chỉ chiến dịch / offline / custom. Không ranked.
-
-**Tải chính thức:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**Miễn phí?**  
-Có. Chỉ MoggyDay.
-
-**Patch hiện tại?**  
-Có.
-
-**Có .exe?**  
-Không.
-
-
-`Call of Duty Modern Warfare 4 trainer, Call of Duty Modern Warfare 4 hack, tải miễn phí, đạn vô hạn, không giật, 2026`
-
-
-## Trainer Call of Duty Modern Warfare 4 +64 unduh gratis 2026 — god mode, peluru tak terbatas, tanpa recoil
-
-Cermin MoggyDay untuk **trainer Call of Duty Modern Warfare 4**. +64 opsi, **patch Steam terbaru**. Tidak ada .exe di repo ini.
-
-Steam AppID **4435490**. 16 misi campaign (Korea, New York, Paris, Mumbai, Stranded). Bukan multiplayer, bukan RICOCHET.
-
-### Fitur populer
-
-- God mode / nyawa tak terbatas
-- Peluru tak terbatas
-- Tanpa recoil
-- Tanpa reload
-- One hit kill
-- Sprint tak terbatas
-- Buka campaign
-- Patch terbaru
-
-### Cara unduh gratis
-
-1. Buka tautan resmi
-2. Cek moggydaytrainer.com
-3. Klik Free download
-4. Setelah patch, refresh URL yang sama
-
-### Patch terbaru
-
-**Trainer Call of Duty Modern Warfare 4** mengikuti build Steam live.
-
-Hanya campaign / offline / custom. Bukan ranked.
-
-**Unduhan resmi:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**Gratis?**  
-Ya. Hanya MoggyDay.
-
-**Patch sekarang?**  
-Ya.
-
-**Ada .exe?**  
-Tidak.
-
-
-`Call of Duty Modern Warfare 4 trainer, Call of Duty Modern Warfare 4 cheat, unduh gratis, peluru tak terbatas, tanpa recoil, 2026`
-
-
-## ترينر Call of Duty Modern Warfare 4 +64 تحميل مجاني 2026 — وضع الإله، ذخيرة لا نهائية، بدون ارتداد
-
-مرآة MoggyDay لـ **ترينر Call of Duty Modern Warfare 4**. +64 خيار على **باتش ستيم الحالي**. لا يوجد .exe في هذا المستودع.
-
-Steam AppID **4435490**. 16 مهمة حملة (كوريا، نيويورك، باريس، مومباي، Stranded). ليس متعدد اللاعبين وليس RICOCHET.
-
-### الوظائف الشائعة
-
-- وضع الإله / صحة لا نهائية
-- ذخيرة لا نهائية
-- بدون ارتداد
-- بدون إعادة تعبئة
-- قتلة بضربة واحدة
-- ركض لا نهائي
-- فتح الحملة
-- الباتش الحالي
-
-### كيفية التحميل المجاني
-
-1. افتح الرابط الرسمي
-2. تأكد أن النطاق moggydaytrainer.com
-3. اضغط Free download
-4. بعد التحديث أعد تحميل نفس الرابط
-
-### الباتش الحالي
-
-**ترينر Call of Duty Modern Warfare 4** يتبع نسخة ستيم الحية.
-
-الحملة / دون اتصال / مخصص فقط. ليس اللعب المصنف.
-
-**التحميل الرسمي:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### أسئلة
-
-**هل هو مجاني؟**  
-نعم. فقط من MoggyDay.
-
-**هل يعمل على الباتش الحالي؟**  
-نعم.
-
-**هل يوجد exe هنا؟**  
-لا.
-
-
-`Call of Duty Modern Warfare 4 ترينر, Call of Duty Modern Warfare 4 غش, تحميل مجاني, ذخيرة لا نهائية, بدون ارتداد, 2026`
-
-
-## Трейнер Call of Duty Modern Warfare 4 +64 скачати безкоштовно 2026 — безсмертя, набої, без віддачі
-
-Дзеркало MoggyDay для **трейнера Call of Duty Modern Warfare 4**. +64 опцій, **актуальний патч Steam**. У цьому репо немає .exe.
-
-Steam AppID **4435490**. 16 місій кампанії (Корея, Нью-Йорк, Париж, Мумбаї, Stranded). Не мультиплеєр, не RICOCHET.
-
-### Популярні функції
-
-- Безсмертя / God Mode
-- Нескінченні набої
-- Без віддачі
-- Без перезарядки
-- Ваншот
-- Нескінченний спринт
-- Відкрити кампанію
-- Актуальний патч
-
-### Як скачати безкоштовно
-
-1. Відкрий офіційне посилання
-2. Перевір домен moggydaytrainer.com
-3. Натисни Free download / Скачать
-4. Після патча онови той самий URL
-
-### Актуальний патч
-
-**Трейнер Call of Duty Modern Warfare 4** тримається живого білду Steam.
-
-Лише кампанія / офлайн / custom. Не ranked.
-
-**Офіційне завантаження:** <https://moggydaytrainer.com/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**Безкоштовно?**  
-Так. Тільки MoggyDay.
-
-**На актуальному патчі?**  
-Так.
-
-**Є .exe?**  
-Ні.
-
-
-`Call of Duty Modern Warfare 4 трейнер, скачати безкоштовно, безсмертя, нескінченні набої, без віддачі, 2026`
-
-
-## Трейнер Call of Duty Modern Warfare 4 +64 скачать бесплатно 2026 — бессмертие, бесконечные патроны, без отдачи
-
-SEO-зеркало MoggyDay для **трейнера Call of Duty Modern Warfare 4**. Пак +64, **актуальный патч Steam**. В этом репозитории нет .exe — файл только на сайте.
-
-Steam AppID **4435490**. 16 миссий кампании (Корея, Нью-Йорк, Париж, Мумбаи, Stranded). Не мультиплеер, не RICOCHET.
-
-### Популярные функции
-
-- Бессмертие / режим бога
-- Бесконечные патроны
-- Без отдачи
-- Без перезарядки
-- Ваншот
-- Бесконечный спринт
-- Открыть все миссии кампании
-- Актуальный патч
-
-### Как скачать бесплатно
-
-1. Открой официальную ссылку
-2. Проверь домен moggydaytrainer.com
-3. Жми «Скачать» / Free download
-4. После патча игры обновляй ту же ссылку, не ищи zip на GitHub
-
-### Актуальный патч
-
-**Трейнер Call of Duty Modern Warfare 4** всегда на живой версии Steam / Windows.
-
-Только кампания / офлайн / custom. Не мультиплеер, не ranked.
-
-**Официальное скачивание:** <https://moggydaytrainer.com/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**Трейнер бесплатный?**  
-Да. Только с MoggyDay.
-
-**Работает на актуальном патче?**  
-Да, карточка обновляется вместе со Steam.
-
-**Есть .exe в репозитории?**  
-Нет. Здесь текст, теги и скриншоты.
-
-
-`трейнер Call of Duty Modern Warfare 4, скачать трейнер Call of Duty Modern Warfare 4 бесплатно, Call of Duty Modern Warfare 4 читы, Call of Duty Modern Warfare 4 хак, бессмертие, бесконечные патроны, без отдачи, ваншот, 2026`
-
-
-## Call of Duty Modern Warfare 4 Trainer +64 Free Download 2026 — God Mode, Infinite Ammo, No Recoil
-
-MoggyDay SEO mirror for the **Call of Duty Modern Warfare 4 trainer**. +64 options on the **current Steam patch**. No `.exe` in this GitHub tree — use the official download button.
-
-Steam AppID **4435490**. 16 campaign missions (Korea, New York, Paris, Mumbai, Stranded). Not multiplayer, not RICOCHET.
-
-### Popular options
-
-- God Mode / Infinite Health
-- Infinite Ammo
-- No Recoil
-- No Reload
-- One Hit Kill
-- Infinite Sprint
-- Unlock campaign missions
-- Current patch
-
-### How to download free
-
-1. Open the official listing
-2. Confirm the domain is moggydaytrainer.com
-3. Click Free download
-4. After a game patch, reload the same URL — do not hunt a GitHub zip
-
-### Current patch
-
-The **Call of Duty Modern Warfare 4 trainer** tracks the live Steam / Windows build.
-
-Campaign / offline / custom only. Not ranked matchmaking.
-
-**Official download:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer>
-
-### FAQ
-
-**Is it free?**  
-Yes. Download only from MoggyDay.
-
-**Does it work on the current patch?**  
-Yes. The listing stays on the live build.
-
-**Is the trainer binary on GitHub?**  
-No. This repo is documentation, screenshots and SEO.
-
-
-`Call of Duty Modern Warfare 4 trainer, Call of Duty Modern Warfare 4 trainer download, Call of Duty Modern Warfare 4 cheat, Call of Duty Modern Warfare 4 hack, god mode, infinite ammo, no recoil, free download 2026`
-
-
-
-
-## Screenshots (this game)
-
-TrainerHub captures for **Call of Duty Modern Warfare 4** — page, functions, hub card:
+| English (canonical) | [https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer) |
+| Русский | [https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer) |
+| 中文 | [https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer) |
+
+
+> **Scope:** documented for campaign, custom, co-op private, or offline practice — not ranked matchmaking or anti-cheat servers.
+
+MoggyDay hosts the official **Call of Duty Modern Warfare 4** trainer for Windows (current, **+64** toggles). This repository is a public mirror: game context, screenshots, and the full feature list. The download button lives only on the **canonical URL above** — there is **no `.exe` in git**.
+
+## About Call of Duty Modern Warfare 4
+
+Call of Duty Modern Warfare 4 is a PC game. MoggyDay documents a dedicated trainer with live toggles for single-player and offline sessions. It is listed in the MoggyDay catalog as a Windows title (Steam app 4435490).
+
+## About the MoggyDay trainer
+
+MoggyDay hosts the official Call of Duty Modern Warfare 4 trainer for Windows (current, +64 toggles). This GitHub repo is documentation only — use the canonical English page for download.
+
+## Screenshots
+
+[![Call of Duty Modern Warfare 4 cover](https://moggydaytrainer.com/media/covers/modern-warfare-4-5076b9f2f0.jpg)](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer)
+
+Shots from the live [Call of Duty Modern Warfare 4 trainer page](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer):
+
+[![Call of Duty Modern Warfare 4 page](https://moggydaytrainer.com/media/shots/hub-modern-warfare-4/page.png)](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer)
+
+[![Call of Duty Modern Warfare 4 options 1](https://moggydaytrainer.com/media/shots/hub-modern-warfare-4/fn-1.png)](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer)
+
+[![Call of Duty Modern Warfare 4 options 2](https://moggydaytrainer.com/media/shots/hub-modern-warfare-4/fn-2.png)](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer)
+
+[![Call of Duty Modern Warfare 4 options 3](https://moggydaytrainer.com/media/shots/hub-modern-warfare-4/fn-3.png)](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer)
+
+## Trainer features (+64)
+
+The table matches the live launcher pack. Hotkeys may change after a patch — confirm on the [canonical page](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer).
+
+| # | Feature | Category | Hotkey | Type |
+|---:|---|---|---|---|
+| 1 | God Mode | Player | Num 1 | Toggle |
+| 2 | Infinite Health | Player | Num 2 | Toggle |
+| 3 | Infinite Armor | Player | Num 3 | Toggle |
+| 4 | Infinite Armor Plates | Armor | Num 4 | Toggle |
+| 5 | Instant Plate Insert | Armor | Num 5 | Toggle |
+| 6 | Max Plate Carrier | Armor | Num 6 | Toggle |
+| 7 | Edit Health | Player | Num 7 | Value |
+| 8 | Edit Armor | Player | Num 8 | Value |
+| 9 | Instant Heal After Hit | Player | Num 9 | Toggle |
+| 10 | Infinite Ammo | Weapons | Num 0 | Toggle |
+| 11 | No Reload | Weapons | Num . | Toggle |
+| 12 | No Recoil | Weapons | Num * | Toggle |
+| 13 | No Weapon Sway | Weapons | Num + | Toggle |
+| 14 | Perfect Accuracy | Weapons | Num - | Toggle |
+| 15 | Rapid Fire | Weapons | Ctrl+Num 1 | Toggle |
+| 16 | One Hit Kill | Combat | Ctrl+Num 2 | Toggle |
+| 17 | Super Damage | Combat | Ctrl+Num 3 | Toggle |
+| 18 | Damage Multiplier | Combat | Ctrl+Num 4 | Value |
+| 19 | Infinite Frag Grenades | Tactical | Ctrl+Num 5 | Toggle |
+| 20 | Infinite Flashbangs | Tactical | Ctrl+Num 6 | Toggle |
+| 21 | Infinite Smoke Grenades | Tactical | Ctrl+Num 7 | Toggle |
+| 22 | Infinite Semtex | Tactical | Ctrl+Num 8 | Toggle |
+| 23 | Infinite C4 / Claymore | Tactical | Ctrl+Num 9 | Toggle |
+| 24 | Infinite Stim / Field Gear | Tactical | Ctrl+Num 0 | Toggle |
+| 25 | Enemies Ignore You | Stealth | Ctrl+Num . | Toggle |
+| 26 | Silent Footsteps | Stealth | Ctrl+Num * | Toggle |
+| 27 | No Alert on Fire | Stealth | Ctrl+Num + | Toggle |
+| 28 | Easy Stealth Takedowns | Stealth | Ctrl+Num - | Toggle |
+| 29 | Night Vision Always On | Stealth | Alt+Num 1 | Toggle |
+| 30 | Unlock All 16 Campaign Missions | Campaign | Alt+Num 2 | Toggle |
+| 31 | Skip to Next Checkpoint | Campaign | Alt+Num 3 | Toggle |
+| 32 | Skip Current Mission Objective | Campaign | Alt+Num 4 | Toggle |
+| 33 | Restart Checkpoint Clean | Campaign | Alt+Num 5 | Toggle |
+| 34 | Easy Campaign Difficulty AI | Campaign | Alt+Num 6 | Toggle |
+| 35 | Freeze Scripted Enemies | Campaign | Alt+Num 7 | Toggle |
+| 36 | No Friendly Fire Fail | Campaign | Alt+Num 8 | Toggle |
+| 37 | Infinite Mission Timer | Campaign | Alt+Num 9 | Toggle |
+| 38 | Reveal Stranded Objectives | Stranded | Alt+Num 0 | Toggle |
+| 39 | Reveal Supply Caches | Stranded | Alt+Num . | Toggle |
+| 40 | Reveal Enemy Outposts | Stranded | Alt+Num * | Toggle |
+| 41 | Infinite Carry Weight (Loot) | Stranded | Alt+Num + | Toggle |
+| 42 | Always Full Loadout After Loot | Stranded | Alt+Num - | Toggle |
+| 43 | Instant Outpost Clear | Stranded | Shift+F1 | Toggle |
+| 44 | No Cold / Exposure Damage | Stranded | Shift+F2 | Toggle |
+| 45 | Infinite Vehicle Ammo | Vehicle | Shift+F3 | Toggle |
+| 46 | No Vehicle Damage | Vehicle | Shift+F4 | Toggle |
+| 47 | Max Vehicle Health | Vehicle | Shift+F5 | Toggle |
+| 48 | Super Vehicle Handling | Vehicle | Shift+F6 | Toggle |
+| 49 | Squad Allies Immortal | Squad | Shift+F7 | Toggle |
+| 50 | Instant Ally Revive | Squad | Shift+F8 | Toggle |
+| 51 | No Ally Downed Fail | Squad | Shift+F9 | Toggle |
+| 52 | Infinite Sprint | Movement | Shift+F10 | Toggle |
+| 53 | Infinite Tactical Sprint | Movement | Shift+F11 | Toggle |
+| 54 | No Fall Damage | Movement | Shift+F12 | Toggle |
+| 55 | Super Speed | Movement | — | Toggle |
+| 56 | Save Position | Misc | — | Toggle |
+| 57 | Load Position | Misc | — | Toggle |
+| 58 | Freeze Time | Time | — | Toggle |
+| 59 | Set Game Speed | Time | — | Speed |
+| 60 | Slow Motion | Time | — | Toggle |
+| 61 | Unlock All Campaign Weapons | Unlocks | — | Toggle |
+| 62 | Unlock All Campaign Attachments | Unlocks | — | Toggle |
+| 63 | Unlock All Mission Loadouts | Unlocks | — | Toggle |
+| 64 | Unlock Campaign Collectibles | Unlocks | — | Toggle |
+
+### Tips
+
+- **God Mode** — Usually the first toggle people enable on a Call of Duty Modern Warfare 4 trainer.
+- **Infinite Health** — Check this after every Call of Duty Modern Warfare 4 patch — values often shift.
+- **Infinite Armor** — Leave it off if you only want a mild resource boost.
+- **Infinite Armor Plates** — Pairs with the other combat toggles on the Call of Duty Modern Warfare 4 page.
+- **Instant Plate Insert** — Use it to skip a grind, then turn it back off.
+- **Max Plate Carrier** — Read the live hotkey next to this name on MoggyDay.
+- **Edit Health** — Game-specific: the Call of Duty Modern Warfare 4 listing explains the exact effect.
+- **Edit Armor** — If two options overlap, enable one and test in a safe save.
+- **Instant Heal After Hit** — Keep a screenshot of your preferred set from the site page.
+- **Infinite Ammo** — Not every option is safe in every mission — test first.
+- **No Reload** — The RU page uses the same toggle order.
+- **No Recoil** — Ask in comments on the trainer page if a name is unclear.
+- **No Weapon Sway** — Usually the first toggle people enable on a Call of Duty Modern Warfare 4 trainer.
+- **Perfect Accuracy** — Check this after every Call of Duty Modern Warfare 4 patch — values often shift.
+- **Rapid Fire** — Leave it off if you only want a mild resource boost.
+- **One Hit Kill** — Pairs with the other combat toggles on the Call of Duty Modern Warfare 4 page.
+- **Super Damage** — Use it to skip a grind, then turn it back off.
+- **Damage Multiplier** — Read the live hotkey next to this name on MoggyDay.
+- **Infinite Frag Grenades** — Game-specific: the Call of Duty Modern Warfare 4 listing explains the exact effect.
+- **Infinite Flashbangs** — If two options overlap, enable one and test in a safe save.
+- **Infinite Smoke Grenades** — Keep a screenshot of your preferred set from the site page.
+- **Infinite Semtex** — Not every option is safe in every mission — test first.
+- **Infinite C4 / Claymore** — The RU page uses the same toggle order.
+- **Infinite Stim / Field Gear** — Ask in comments on the trainer page if a name is unclear.
+- **Enemies Ignore You** — Usually the first toggle people enable on a Call of Duty Modern Warfare 4 trainer.
+- **Silent Footsteps** — Check this after every Call of Duty Modern Warfare 4 patch — values often shift.
+- **No Alert on Fire** — Leave it off if you only want a mild resource boost.
+- **Easy Stealth Takedowns** — Pairs with the other combat toggles on the Call of Duty Modern Warfare 4 page.
+- **Night Vision Always On** — Use it to skip a grind, then turn it back off.
+- **Unlock All 16 Campaign Missions** — Read the live hotkey next to this name on MoggyDay.
+- **Skip to Next Checkpoint** — Game-specific: the Call of Duty Modern Warfare 4 listing explains the exact effect.
+- **Skip Current Mission Objective** — If two options overlap, enable one and test in a safe save.
+- **Restart Checkpoint Clean** — Keep a screenshot of your preferred set from the site page.
+- **Easy Campaign Difficulty AI** — Not every option is safe in every mission — test first.
+- **Freeze Scripted Enemies** — The RU page uses the same toggle order.
+- **No Friendly Fire Fail** — Ask in comments on the trainer page if a name is unclear.
+- **Infinite Mission Timer** — Usually the first toggle people enable on a Call of Duty Modern Warfare 4 trainer.
+- **Reveal Stranded Objectives** — Check this after every Call of Duty Modern Warfare 4 patch — values often shift.
+- **Reveal Supply Caches** — Leave it off if you only want a mild resource boost.
+- **Reveal Enemy Outposts** — Pairs with the other combat toggles on the Call of Duty Modern Warfare 4 page.
+- **Infinite Carry Weight (Loot)** — Use it to skip a grind, then turn it back off.
+- **Always Full Loadout After Loot** — Read the live hotkey next to this name on MoggyDay.
+- **Instant Outpost Clear** — Game-specific: the Call of Duty Modern Warfare 4 listing explains the exact effect.
+- **No Cold / Exposure Damage** — If two options overlap, enable one and test in a safe save.
+- **Infinite Vehicle Ammo** — Keep a screenshot of your preferred set from the site page.
+- **No Vehicle Damage** — Not every option is safe in every mission — test first.
+- **Max Vehicle Health** — The RU page uses the same toggle order.
+- **Super Vehicle Handling** — Ask in comments on the trainer page if a name is unclear.
+- **Squad Allies Immortal** — Usually the first toggle people enable on a Call of Duty Modern Warfare 4 trainer.
+- **Instant Ally Revive** — Check this after every Call of Duty Modern Warfare 4 patch — values often shift.
+- **No Ally Downed Fail** — Leave it off if you only want a mild resource boost.
+- **Infinite Sprint** — Pairs with the other combat toggles on the Call of Duty Modern Warfare 4 page.
+- **Infinite Tactical Sprint** — Use it to skip a grind, then turn it back off.
+- **No Fall Damage** — Read the live hotkey next to this name on MoggyDay.
+- **Super Speed** — Game-specific: the Call of Duty Modern Warfare 4 listing explains the exact effect.
+- **Save Position** — If two options overlap, enable one and test in a safe save.
+- **Load Position** — Keep a screenshot of your preferred set from the site page.
+- **Freeze Time** — Not every option is safe in every mission — test first.
+- **Set Game Speed** — The RU page uses the same toggle order.
+- **Slow Motion** — Ask in comments on the trainer page if a name is unclear.
+- **Unlock All Campaign Weapons** — Usually the first toggle people enable on a Call of Duty Modern Warfare 4 trainer.
+- **Unlock All Campaign Attachments** — Check this after every Call of Duty Modern Warfare 4 patch — values often shift.
+- **Unlock All Mission Loadouts** — Leave it off if you only want a mild resource boost.
+- **Unlock Campaign Collectibles** — Pairs with the other combat toggles on the Call of Duty Modern Warfare 4 page.
+
+## Download
+
+1. Open the **[canonical English listing](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer)**.
+2. For Russian or Chinese UI, use [/ru/f/](https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer) or [/zh/f/](https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer) from the table above.
+3. Confirm the domain is **moggydaytrainer.com**.
+4. Use the primary **Free download** button on that page.
+5. After a Call of Duty Modern Warfare 4 update, reload the same URL — do not hunt mirror zips on GitHub.
+
+## Install (Windows)
+
+1. Close Call of Duty Modern Warfare 4 before trying a new build.
+2. Run only files from MoggyDay for `call-of-duty-modern-warfare-4-trainer`.
+3. Enable a few toggles first, not the entire +64 list.
+4. Keep a backup save before resource or progression edits.
+
+## FAQ
+
+## FAQ
+
+**Is the Call of Duty Modern Warfare 4 trainer file inside this repository?**
+No. Only MoggyDay hosts it: [https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer).
+
+**How many options are in current?**
+The live title says **+64**. God mode, health, stamina and the game-specific row are on that page and can move when Call of Duty Modern Warfare 4 patches.
+
+**Is there a Russian page?**
+Yes — [Call of Duty Modern Warfare 4 трейнер — бессмертие, бесконечные патроны, без отдачи, без перезарядки, ваншот — скачать бесплатно 2026](https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer). Same build, RU copy, RU comments.
+
+**Where are updates posted?**
+[Call of Duty Modern Warfare 4 hub](https://moggydaytrainer.com/g/modern-warfare-4) and [Call of Duty Modern Warfare 4 news](https://moggydaytrainer.com/g/modern-warfare-4/news). Bookmark `/f/call-of-duty-modern-warfare-4-trainer`.
+
+**Why GitHub at all?**
+So `Call of Duty Modern Warfare 4 trainer` search has a documented page with screenshots that points at the real download, instead of a dead file host.
+
+
+## Search terms (English)
+
+`Call of Duty Modern Warfare 4 trainer`, `COD MW4 trainer`, `MW4 trainer download`, `скачать трейнер Modern Warfare 4`, `бессмертие`, `бесконечные патроны`, `без отдачи`, `без перезарядки`, `ваншот`, `god mode`, `infinite ammo`, `no recoil`, `no reload`, `one hit kill`
+
+## Other languages
+
+- Russian copy: [ru.md](ru.md) · live page [https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer)
+- Chinese page: [https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer)
+
+## About this mirror
+
+Maintained by `veenx0704` for SEO transparency. **Canonical:** [https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer). Screenshots hotlink MoggyDay `/media/` assets. No links to other trainers in this repo.
+
+
+## In-repo screenshots (MW4)
 
 ![MW4 trainer page](media/page.png)
-
 ![MW4 trainer functions](media/fn-1.png)
-
 ![MW4 trainer options](media/fn-2.png)
-
 ![MW4 trainer list](media/fn-3.png)
-
 ![MW4 hub card](media/card.png)
-
 ![MW4 cover](media/cover.jpg)
 
-## Popular options (+64)
+## Campaign scope
 
-God Mode · Infinite Health · Infinite Ammo · No Recoil · No Reload · One Hit Kill ·
-Infinite Sprint · Unlock All 16 Campaign Missions · Stranded objectives · Vehicle ammo.
-
-RU: бессмертие, бесконечные патроны, без отдачи, без перезарядки, ваншот — скачать бесплатно 2026.
-
-## Canonical
-
-- EN: https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer
-- RU: https://moggydaytrainer.com/f/call-of-duty-modern-warfare-4-trainer
-- ZH 修改器: https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer
-- Pages: https://veenx0704.github.io/cod-mw4-campaign-trainer/
-
-Campaign / offline only. No `.exe` in this tree. Current Steam patch.
+Steam AppID **4435490**. **+64** toggles for campaign / Stranded / offline sessions only —
+not multiplayer, ranked, or RICOCHET. Download only from the [canonical page](https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer).
+Russian listing: [https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer) · Chinese: [https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer](https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer).
