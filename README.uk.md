@@ -10,7 +10,7 @@
 ![card](media/card.png)
 ![cover](media/cover.jpg)
 
-**EN:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer> · **RU:** <https://moggydaytrainer.com/f/call-of-duty-modern-warfare-4-trainer> · **ZH:** <https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer>
+**EN:** <https://moggydaytrainer.com/en/f/call-of-duty-modern-warfare-4-trainer> · **RU:** <https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer> · **ZH:** <https://moggydaytrainer.com/zh/f/call-of-duty-modern-warfare-4-trainer>
 
 # Трейнер Call of Duty Modern Warfare 4 +64 скачати безкоштовно 2026 — безсмертя, набої, без віддачі
 
@@ -42,7 +42,7 @@ Steam AppID **4435490**. 16 місій кампанії (Корея, Нью-Йо
 
 Лише кампанія / офлайн / custom. Не ranked.
 
-**Офіційне завантаження:** <https://moggydaytrainer.com/f/call-of-duty-modern-warfare-4-trainer>
+**Офіційне завантаження:** <https://moggydaytrainer.com/ru/f/call-of-duty-modern-warfare-4-trainer>
 
 ### FAQ
 
